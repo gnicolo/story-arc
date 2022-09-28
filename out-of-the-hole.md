@@ -9,7 +9,7 @@ Our story begins with...
 
 
 ## Chapter 3: Hardship
-
+loses his right foot
 
 ## Chapter 4: Recovery
 
