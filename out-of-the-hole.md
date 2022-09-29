@@ -1,7 +1,7 @@
 # Out of the Hole
 
 ## Chapter 1: Characters
-
+Naruto, Sasuke, Sakura, and Kakashi
 Our story begins with...
 
 
