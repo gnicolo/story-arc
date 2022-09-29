@@ -10,7 +10,9 @@ Naruto, Sasuke, Sakura, and Kakashi embark on a mission to slay the legendary to
 They arrive at toilet dragon dojo
 poop
 ## Chapter 3: Hardship
-All charectors loses a foot and go bald
+Naruto and Sasuke attempt to do a rasengan chidori combo but it's clear the toilet Dragon is too powerful
+Sakura beckons Kakashi who attempts by himself but even he is overwhelmed.
+
 ## Chapter 4: Recovery
 
 
