@@ -14,7 +14,7 @@ Naruto and Sasuke attempt to do a rasengan chidori combo but it's clear the toil
 Sakura beckons Kakashi who attempts by himself but even he is overwhelmed.
 
 ## Chapter 4: Recovery
-
+Took a shot of tequila and regenerated all cellular structures
 
 ## Chapter 5: Happily ever after
 and they live...
