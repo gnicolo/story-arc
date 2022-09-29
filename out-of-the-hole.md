@@ -1,8 +1,8 @@
 # Out of the Hole
 
 ## Chapter 1: 
+Our story begins with
 Naruto, Sasuke, Sakura, and Kakashi.
-Our story begins with...
 
 
 ## Chapter 2: Quest
