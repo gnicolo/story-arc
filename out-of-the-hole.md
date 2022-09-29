@@ -17,4 +17,4 @@ Sakura beckons Kakashi who attempts by himself but even he is overwhelmed.
 Took a shot of tequila and regenerated all cellular structures
 
 ## Chapter 5: Happily ever after
-and they live...
+and they live and ate pho
