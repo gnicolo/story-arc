@@ -8,7 +8,7 @@ Our story begins with...
 ## Chapter 2: Quest
 Naruto, Sasuke, Sakura, and Kakashi embark on a mission to slay the legendary toilet dragon ninja
 They arrive at toilet dragon dojo
-poop
+
 ## Chapter 3: Hardship
 
 
