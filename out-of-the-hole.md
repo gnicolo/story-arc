@@ -9,7 +9,7 @@ Our story begins with...
 
 
 ## Chapter 3: Hardship
-All charectors loses a foot
+All charectors loses a foot and go bald
 ## Chapter 4: Recovery
 
 
